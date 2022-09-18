@@ -4,3 +4,4 @@ One day a Hunter came a captured the king of the jungle Lion in the nets. He gro
 The growl was heard by the Mouse. Mouse came to help the Lion as he had promised. Mouse cut the nets and Lion got free.
 So the moral of the story is 'Always the smaller ones by the nature comes in help'.
 So friends what did you learn, Will you help others?
+Why is this so long?
